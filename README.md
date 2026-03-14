@@ -1,4 +1,4 @@
-赚到100w就退休
+赚到500w就退休
 
 「啊！原來你一直與我同在  Aah, you were at my side, all along.」
 
